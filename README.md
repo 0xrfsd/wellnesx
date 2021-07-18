@@ -1,1 +1,1 @@
-# wellnesx
+# wellness
